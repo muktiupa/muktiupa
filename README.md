@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mukti upadhyay, @muktiupa
-- 👀 I’m interested in Design and develop web 
+- 👀 I’m interested in Designing & Coding
 - 📫 How to reach me muktiupa@gmail.com
 
 
